@@ -1,6 +1,8 @@
 # PRACTICA1
 SKKSKSK
-esto es una practica
-HOLA BUENAS
+esto es una practica 
+HOLA BUENAS TARDES
 JSSKSKKSSKJ
 123456789
+777777
+AAA
